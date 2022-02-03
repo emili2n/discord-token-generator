@@ -5,7 +5,7 @@ Tool is working but only with high quality proxies
 
 PLEASE JOIN : https://t.me/nelimtoken/
 
-I will publish it when we reach 350 members on : 
+I will publish it when we reach 300 members on : 
 https://t.me/nelimtoken/
 
 Will send a message with download link on https://t.me/nelimtoken/ channel. 
